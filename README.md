@@ -11,11 +11,11 @@
 * Track record of events
 * Appraisal data generation
 
-### Every Week
+## Every Week
 
 * Weekly Summary of Work (generated from daily summary of work)
 
-###  Every Month
+##  Every Month
 
 * Monthly Summary of Work (generated from weekly summary of work)
 * Monthly summary feeds into resume!
