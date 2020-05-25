@@ -261,4 +261,4 @@ If you have a valid work permit or visa, just mention that you have one, without
 
 Above all, check your spelling and grammar. Look for typo errors, read the resume multiple times, ask someone to do a peer review, have a different set of eyes look into what you have created and let them review it. This way you will get a different perspective and it might help catch few unnoticed issues. BTW excuse me for any spelling / grammar errors in this post, as it is less than 30 mins to midnight.
 
-This [link](http://www.careercup.com/resume) explains a few more points and this template will help you prepare a good resume. For more information / help just reach me out via Twitter [@srihari_sr](https://twitter.com/srihari_sr)! Best wishes for your job hunt and resume preparation!
+This [link](http://www.careercup.com/resume) explains a few more points and this template will help you prepare a good resume. For more information / help just reach me out via Twitter [@srh_srd](https://twitter.com/srh_srd)! Best wishes for your job hunt and resume preparation!
