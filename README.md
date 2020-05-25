@@ -132,7 +132,7 @@ You always need one, especially those who follow and preach and not just preach 
 Know your options, and choose something that will give you satisfaction and will keep you happy in the long run. Do something that you will enjoy doing day in day out! You definitely need to fix a target. Fix one, work towards it, do your best, don't be anxious about results. If you have done your duty, results will fall in place. After you reach your target, reset your target and the cycle continues.
 
 
-####Keep track of your work
+#### Keep track of your work
 
 Keep track of your daily work and monitor your progress. Someone is sure to ask you about what you did over a period of time! Prepare, weekly, monthly, quarterly and annual reports and send it to your reporting manager. This helps in reducing the _halo effect_. Keeping track of your work has many benefits. First of all it provides historical data, which could be analyzed to understand your strengths, weaknesses, achievements, mistakes and areas of improvement. It also helps you understand what consumes your time and whether you are doing something meaningful for your role! At the same time, it also gives you indications on whether you are progressing on your defined career path or need some course correction. Many times we get affected by _'**boiling frog syndrome**'_ and reviewing our track record helps us sense any threats sooner than later!
 
